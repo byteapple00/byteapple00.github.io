@@ -1,1 +1,0 @@
-# binariipictor.github.io
